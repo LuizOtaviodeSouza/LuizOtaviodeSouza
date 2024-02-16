@@ -1,4 +1,4 @@
-Olá!Meu nome é Luiz Otavio e tenho 16 anos,estudo no 2ªsérie do ensino médio na escola Etec Comendador João Rays (Naval),
+Olá!Tenho 16 anos eestudo na 2ªsérie do ensino médio na escola Etec Comendador João Rays (Naval),
 já cursei Sistente administrativo e Marketing na A.L.C (Associação dos Legionarios de Cristo),Técnico de informatica no Prepara curso de Jáu e Ativa juventude em Igaraçu do Tiête,
 e estou cursando secretariado no período da noite na Naval.
 Não possuo esperiência em trabalho mas,ao finalizar o curso de secretariado ao final do ano,pretendo buscar um emprego de meio periodo como administrador ou recepcionista;Meu objetivo ao terminar os estudos
